@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @OrpTheHacker
+- 👀 I’m interested in learning how to code javascript or lua code
+- 🌱 I’m currently learning on how to code but I get confused cause some go to fast on tutorials and they don't expalin the tutorial good
+- 📫 How to reach me 214-864-2150 or orppro12345@gmail.com
